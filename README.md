@@ -1,1 +1,0 @@
-# FutureTechConsultancy.github.io
